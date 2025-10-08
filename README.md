@@ -1,6 +1,6 @@
 &nbsp;<div align="center">
 
-﹒      ⠀⠀ $\LARGE\textcolor{#67677e}{\textsf{stray bullet,}}$ 　 　 $\LARGE\textcolor{#8e8e8b}{\textsf{from the barrel of love.}}$     ⠀⠀𓏼　　★　 ⁷⁷⁷
+﹒      ⠀⠀ $\LARGE\textcolor{#67677e}{\textsf{stray bullet,}}$ 　 　 $\LARGE\textcolor{#8e8e8b}{\textsf{from the barrel of love!}}$     ⠀⠀𓏼　　★　 ⁷⁷⁷
 
 </div>
 
